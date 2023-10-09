@@ -1,2 +1,1 @@
 Jesus Palapa
-20
